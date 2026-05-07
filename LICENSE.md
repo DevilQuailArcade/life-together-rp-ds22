@@ -1,4 +1,4 @@
-
+life together rp instant Scripts is the best life together rp Script, featuring private server access and auto-upgrade. Safe and powerful for all
 
 
 
